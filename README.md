@@ -9,24 +9,28 @@ hey<br/>
 [![Discord Presence](https://lanyard.cnrad.dev/api/860677401884622879?borderRadius=20px&hideTimestamp=true&hideDecoration=true&hideActivity=true)](https://discord.com/users/860677401884622879)
 
 ## My Github Stats
-[![Anurag's GitHub stats-Light](https://github-readme-stats.vercel.app/api?username=4xrj\&show_icons=true\&theme=default#gh-light-mode-only)](https://github.com/4xrj)
+[![Anurag's GitHub stats-Light](https://github-readme-stats.vercel.app/api?username=gtxspell\&show_icons=true\&theme=default#gh-light-mode-only)](https://github.com/gtxspell)
 
 ## Games I like
-Minecraft, osu!, Yandere Simulator, ULTRAKILL, Fall Guys, Rocket League, Counter-Strike 2, Platform and Cool Games
+Counter Strike 2 & Minecraft & osu! and some rpg and anime games
 
 ## Hobbies
-Just Reading
+Just Reading and doing interesting things
 
 ## Animes
-- COTE (Classroom of the elite)
+- Classroom of the Elite
 - Oshi No Ko
 - BLUE LOCK
 - Black Clover
-- AOT (Attack on Titan)
+- Attack on titan
 - Mashle
 - HUNTER×HUNTER
 - Made in Abyss
 - Solo Leveling
+- Seraph of the end
+- Moriarty the Patriot
+- Silent Voice
+- Hyouka
 
 ## Songs I like
 - "Kiseki" by **Quruil**<br/>
@@ -35,10 +39,12 @@ Just Reading
 - "Mesmerizer" by **32ki, Hatsune Miku, Kasane Teto**<br/>
 - "Caste Room" by **ZAQ**<br/>
 - "Dance in the Game" by **ZAQ**<br/>
-- "KICK BACK" by **Kenshi Yonezu**
+- "KICK BACK" by **Kenshi Yonezu**<br/>
+- "Retry Now" by **NAKISO**<br/>
+- "Young Girl A" by **Siinamota**
 
-## Contact Me
-[discord: @kiro1.0](https://discord.com/users/860677401884622879) or [instagram: @kirodays](https://instagram.com/kirodays)
+## Contact Me (I'm open for chatting on [Discord](https://discord.com/users/1024297429127933952))
+discord: [@gtxspell](https://discord.com/users/860677401884622879) or instagram: [@gtxspell](https://instagram.com/gtxspell)
 
 
 ⣿⠛⠛⠛⠛⠻⡆⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
