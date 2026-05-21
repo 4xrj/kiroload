@@ -8,8 +8,6 @@ hey<br/>
 ## Discord
 [![Discord Presence](https://lanyard.cnrad.dev/api/860677401884622879?borderRadius=20px&hideTimestamp=true&hideDecoration=true&hideActivity=true)](https://discord.com/users/860677401884622879)
 
-## My Github Stats
-[![Anurag's GitHub stats-Light](https://github-readme-stats.vercel.app/api?username=gtxspell\&show_icons=true\&theme=default#gh-light-mode-only)](https://github.com/gtxspell)
 
 ## Games I like
 Counter Strike 2 & Minecraft & osu! and some rpg and anime games
